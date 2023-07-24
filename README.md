@@ -7,7 +7,7 @@
 
 - 💬 People Call me **Jeegyasha**
 
-- ⚡ I love Playing **Guitar**
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
